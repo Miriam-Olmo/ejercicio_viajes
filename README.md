@@ -1,1 +1,2 @@
-iniciamos ejercicio colaborativo
+Introducción: Madrid 
+Mario Romero
